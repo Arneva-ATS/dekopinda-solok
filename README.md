@@ -1,1 +1,1 @@
-# dekopinda-solok
+# dekopinda-karanganyar
